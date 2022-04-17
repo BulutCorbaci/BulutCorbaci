@@ -5,8 +5,6 @@ So you have come here heh. You are wasting your precious time. 😅
 
 🎮 Loves Playing TF2.
 
-👿 Hates Stupid af People (ex. You).
-
 # Current Things
 
 Currently Developing ..: 𝑩𝑳𝑻.𝑪𝑭𝑮 𝑪𝑷𝑷
